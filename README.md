@@ -25,7 +25,7 @@ I'm currently studying on bca<br><br><br><br>I'm looking for help with codings <
 [![](https://visitcount.itsvg.in/api?id=Shirish Gore &icon=0&color=0)](https://visitcount.itsvg.in)
 
   ## 💰 You can help me by Donating
-  [![BuyMeACoffee](https://buymeacoffee.com/shirish_gore) 
+  (https://buymeacoffee.com/shirish_gore) 
 
   
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
