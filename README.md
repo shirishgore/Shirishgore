@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently studying on bca<br><br>I'm looking for help with codings <br><br>I'm currently learning in bca<br><br>Ask me about<br><br>Fun fact that I am where pasaonet and productivity 
+I'm currently studying on BCA<br><br>I'm looking for help with codings <br><br>I'm currently learning in BCA<br><br>Ask me about<br><br>Fun fact that I am where pasaonet and productivity 
 
 
 ## 🌐 Socials:
